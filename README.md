@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning in Lower secondary school(2k12)
 - 💞️ I’m looking to collaborate on Github
 - 📫 Contact with me on gmail: lezipher@gmail.com
-- 😄 Pronouns: ...
+- 😄 Pronouns: I love coding very very much!
 - ⚡ Fun fact: D can love me=))!!
 
 <!---
