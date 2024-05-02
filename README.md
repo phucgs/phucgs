@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Github
 - 📫 Contact with me on gmail: phucgs212@gmail.com
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: D can love me=))!!
 
 <!---
 phucgs/phucgs is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
